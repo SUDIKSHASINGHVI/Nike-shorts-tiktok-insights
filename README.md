@@ -1,4 +1,4 @@
-** Nike – Shorts & TikTok Insights**
+**Nike – Shorts & TikTok Insights**
 
 **📊 Project Overview**
 
